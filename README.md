@@ -24,6 +24,5 @@ Je souhaite devenir un profil **multidisciplinaire**, associant mon expertise en
 ## 📫 Contact
 
 - [LinkedIn](https://www.linkedin.com/in/basile-gandon)
-- Email : basilejoogandon@gmail.com
 
 Merci d'avoir pris le temps de visiter mon profil ! N'hésitez pas à me contacter pour échanger sur des projets, des idées ou des opportunités !
